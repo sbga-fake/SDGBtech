@@ -1,2 +1,2 @@
 # SDGBtech
-骗你的，真想当伸手党？
+[点击这里加入组织并获取](https://cdn.mtdv.me/video/rick.mp4)
